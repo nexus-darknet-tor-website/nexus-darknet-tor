@@ -52,4 +52,6 @@ Visit Nexus now through Tor: http://nexusya4eiklfwqoly52t4igcrcu3lgtaykkjbnsncjc
 
 **Disclaimer:** This article is for educational and informational purposes only. Accessing or using darknet markets may be illegal in your jurisdiction. Always comply with your local laws.
 
-Update:  Sunday 14 September 2025
+
+
+Update:  Thursday 18 September 2025
